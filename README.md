@@ -90,7 +90,7 @@ Download Brickit and send me a message, I will answer you with joy ! <br />
 
 - Linkedin : [Nathan Journo][linkedin-url1]
 - Linkedin : [Nouheila Bat][linkedin-url1]
-- Linkedin : [Amanda Elfassi][linkedin-url1]
+- Linkedin : [Amanda Elfassy][linkedin-url1]
 
 [linkedin-url1]: https://www.linkedin.com/in/nathan-journo-2a351719a/
 [linkedin-url2]: https://www.linkedin.com/in/nouhe%C3%AFla-bat-62a4b014b/
